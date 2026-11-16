@@ -6,3 +6,5 @@
 | Patins de frein (la paire) | 8 | 4 € |
  
 | Câble de frein | 10 | 3 € |
+
+Gaine (le mètre) | 20 | 2 € |
